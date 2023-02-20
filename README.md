@@ -6,7 +6,7 @@ facilitan la vida a las personas.
 - 💞️ I’m looking to collaborate on ... Cualquier proyecto que me permita aplicar mis conocimientos adquiridos, obtener nuevos conocimientos. Pero que también yo pueda obtener benefición economicos ya que, logicamente, 
 tambien tengo que comer, je je je, y mantener una familia.
 - 📫 How to reach me ...    Vivo en Valencia, Venezuela.
--                             Mi correo electronico  enriver77@gmail.com
+-                             Mi correo electronico  rivenny@gmail.com
 -                            Mi telefono o Whatsapp +584244228094
 
 <!---
